@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+https://www.linkedin.com/posts/adidas_adidas-retail-sustainability-activity-6872157773258342400-GhLt/
+
 <!--
 **rajkamal3/rajkamal3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
