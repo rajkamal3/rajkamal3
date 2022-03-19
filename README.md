@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-🚀 https://youtu.be/KwkgKET3M2A  
 🚀 https://www.linkedin.com/posts/adidas_adidasterrex-outdoor-adidas-activity-6856914146085093376-Qg6m  
 🚀 https://www.linkedin.com/posts/adidas_adidas-adidasterrex-retail-activity-6867082604802273280-5AzF  
 🚀 https://www.linkedin.com/posts/adidas_adidas-retail-china-activity-6881515737228300288-am-W  
